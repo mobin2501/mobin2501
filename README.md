@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @mobin2501
-My back up GITHUB account: https://github.com/mobin2502
+- My back up GITHUB account: https://github.com/mobin2502
 - 📫 How to reach me: mail: mobin2501@gmail.com
 
 <!---
